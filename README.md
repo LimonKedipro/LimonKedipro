@@ -1,0 +1,5 @@
+- 🌷Merhaba Ben Ferman Tuğra Başar
+- 👀 Her An Gözüm Üstünde Kanka!
+- 🌱 Ağaç Ekiyoruz 
+- 💞️ seni Seviyorum 
+- 📫 Merhaba; Postanız Var İmza Atarmısınız?
